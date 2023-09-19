@@ -11,9 +11,9 @@
 
 - 💬 Ask me about *Power Bi, My Sql, Excel, Python*
 
-- 📫 How to reach me *ashish7210k@gmail.com*
+- 📫 How to reach me *ashish1analyst@gmail.com*
 
-- 📄 Know about my experiences https://drive.google.com/file/d/10Akc8n1VUDd-93Sv34yg_AuWKb_Iwc90/view?usp=drivesdk
+- 📄 Know about my experiences https://drive.google.com/file/d/12oXGHvts5gi0MdOhS36q3kxyxATKkjCT/view?usp=drivesdk
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
